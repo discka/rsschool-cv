@@ -3,10 +3,8 @@
 ### **Junior Frontend Developer**
 
 #### **Contact:**
-##### **Tel:** +49 1551 001 06 28
 ##### **Email:** disckadi@gmail.com
 ##### **Telegram:** @discka
-##### **Instagram:** @discka
 ##### **Discord:** Discka
 [**Behance**](https://www.behance.net/discka)
 
